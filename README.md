@@ -1,4 +1,4 @@
-# The Analysis of Poverty People in Region IV-A in Municipality of Batangas Area
+# The Analysis of Poverty People in Region IV-A in Municipality of Batangas
 
 **Introduction:**
 
