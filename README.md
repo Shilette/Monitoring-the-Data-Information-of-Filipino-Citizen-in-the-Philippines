@@ -2,54 +2,27 @@
 
 **Introduction:**
 
-       In Region IV-A Batangas Area poverty makes life difficult for every family member and for families as a whole in a society where injustice and discrimination are common and the screws of austerity and budget cuts continue to tighten. Poverty causes an imbalance in society's quality, resulting in ignorant individuals becoming homeless and unemployed, which leads to crime and revolution. People are usually involved in crime because they just cruise the streets looking for something worth to them in order to profit from it. Because they are destitute and unable to afford basic human requirements like as food, education, shelter, and health, today's youth are involved in criminal activities and commit numerous crimes. Nowadays, teenagers are unable to fill open jobs as applicants because they lack the basic skills required for formal employment due to a lack of work experience or training. Youth constitute the highest and fastest growing proportion of each society, therefore there is a need to understand the challenges they are facing. 
+         In Region IV-A Batangas Area poverty makes life difficult for every family member and for families as a whole in a society where injustice and discrimination are common and the screws of austerity and budget cuts continue to tighten. Poverty causes an imbalance in society's quality, resulting in ignorant individuals becoming homeless and unemployed, which leads to crime and revolution. People frequently get involved in crime because they are simply looking for something valuable to earn from on the streets. Because they are destitute and unable to afford basic human requirements like as food, education, shelter, and health, today's youth are involved in criminal activities and commit numerous crimes. Nowadays, teenagers are unable to fill open jobs as applicants because they lack the basic skills required for formal employment due to a lack of work experience or training. Because youth make up the largest and fastest-growing segment of any society, it is critical to comprehend the issues they face.
             
-          Poverty is the lack of the basic needs of life, including food, shelter, clothing and safe drinking water. For a person to live normally, it is important to meet a certain level of physical, social, and emotional needs. People who live in poverty have difficult time to achieve those as they are not welcomed in many places. Because of their low incomes, they have troubles in maintaining their health, hunger, education. Poverty has become a large issue around the world. It is something that many of us know about but we’re not realizing just how big of a problem it is. This paper will include basic information about poverty, its effects, facts and statistics which can make people aware and want to help reduce poverty.
+         Poverty is characterized as a lack of basic necessities such food, shelter, clothing, and clean water. It is necessary to meet specific bodily, social, and emotional demands in order to live normally. Poverty-stricken people have a tough time achieving these goals because they are not welcome in many places. They struggle to keep their health, food, and education due to their low salaries. Poverty has become a global problem and many of us are aware of it, but we are unaware of the magnitude of the situation. This article will provide fundamental knowledge about poverty, its affects, facts, and figures that will help individuals become more aware of poverty and wish to help.
 
 **Problem Statement:**
 
-        Poverty occurs for many reasons, but in the Region IV-4 in Municipality of Batangas there are recurring factors that have slowed the development progress. 
-      Economic growth is low compared to neighbouring countries. GDP growth is comparable, however, GDP per capita in relation to 
-      the increase of population is much slower. Poverty directly impacts economic growth due to constraints in credit and the 
-      underdevelopment of the financial market and inequality in income and assets. Another cause of poverty in the Region IV-A in Municipality of Batan is 
-      the rise of unmanaged population growth. Because the poor tend to have bigger families, they are unable to access health 
-      services or sex education, which leads to more children and the continuation of that cycle. The pattern of growth is common 
-      in rural areas, but there has been a rise in poverty in urban areas. Municipality in Batangas have been faced with an increase
-      in poverty due to lack of well-paid employment. One of the main causes of poverty in the Philippines especialy in the Region IV-A in Municipality of batangas is the vulnerability to natural disasters. Natural disasters in the Philippines have caused US$23 billion in damages since 1990, which continues to 
-      delay the development process. 
+       Poverty can be caused by a variety of sources, but in the Municipality of Batangas' Region IV-4, there are several problems that have hindered development. Compared to neighboring countries, economic growth is slow. Although GDP growth is comparable, GDP per capita growth is substantially slower when compared to population growth. Due to credit limits, underdevelopment of the financial market, and income and asset disparity, poverty has a direct impact on economic growth. Unmanaged population expansion is another source of poverty in Batangas Municipality's Region IV-A. Because the impoverished tend to have larger families, they are unable to get health care or sex education, resulting in more children and the cycle continuing.
 
 **Significance of the Proposed Project:**
       
-         This research will provide the data information of every Filipino Citizen in the Philippines. The research will specially 
-      benefit the following:
+         This research will provide the the Analysis of Poverty People in Region IV-A in Municipality of Batangas. The research will specially benefit the following: 
+	 
+	 • Government - the most likely to benefit from our research. Because they'll know how much poverty there is in the Philippines, which will help them with their poverty research.It is easier for the government to help the poor. It will be simpler for them to create different companies for different locations so that they can readily feed the underprivileged. They will go for it, especially with thin youngsters, and will provide free check-ups and medicine. So that they will be healthy and malnourished youngsters will not enter our population. Poverty is defined as a level of income from work that is insufficient to meet fundamental human needs. Poverty-stricken individuals and families may lack enough housing, clean water, nutritious food, and medical care. Each country may have its own set of criteria for calculating how many people live in poverty.
+
+      • Community – donate money and time, and look for volunteer opportunities One of the most simple ways to assist your community battle poverty is to donate money to organizations whose aim is to eliminate economic inequality. A small or large sum of money does not exist. As the money accumulate, groups can use them to address housing inequities, education gaps, food insecurity, and other issues. Another useful alternative is to join forces with local organizations that aid the community by contributing their time. There are methods to have an effect that don't require money, whether it's volunteering in a food pantry or working with children after school to help them finish their homework. We've established a volunteer waitlist, which you can join to assist us continue our work.
       
-      • Government - the most likely to benefit from our research. Because they'll know how much poverty there is in the 
-      Philippines, which will help them with their poverty research. It is easier for the government to assist disadvantaged 
-      individuals. It will be simpler for them to create different companies for different locations so that they can readily feed
-      the underprivileged. They will go for it, especially with thin youngsters, and will provide free check-ups and medicine. So
-      that they will be healthy and malnourished youngsters will not enter our population. Poverty means that the income level from 
-      employment is so low that basic human needs can't be met. Poverty-stricken people and families might go without proper housing, 
-      clean water, healthy food, and medical attention. Each nation may have its own criteria for determining how many of its people 
-      are living in poverty.
-
-      • Community – donate money and time, and look for volunteer opportunities One of the most simple ways to assist your community 
-      battle poverty is to donate money to organizations whose aim is to eliminate economic inequality. There is no such thing as a 
-      tiny or huge sum of money. As the money accumulate, groups can use them to address housing inequities, education gaps, food 
-      insecurity, and other issues. Another useful alternative is to join forces with local organizations that aid the community by 
-      contributing their time. There are methods to have an effect that don't require money, whether it's volunteering in a food 
-      pantry or working with children after school to help them finish their homework. To help us continue our work, we've created a 
-      volunteer waitlist that you can join.
-
-      • Citizen –  the benefits here will be able to achieve our dream of being able to study and then value education as a student 
-      who has a beak, can work well, no one will go hungry, and it will be difficult to work hard, we will rise in life, and we will
-      not be able to increase the population of poor people to eat three times a day all the poor, and we will assist with the 
-      activities that will take place in our area to also help stop poverty in the Philippines.
+      • Citizen –  the benefits here will be able to achieve our dream of being able to study and then value education as a student who has a beak, can work well, no one will go hungry, and it will be difficult to work hard, we will rise in life, and we will not be able to increase the population of poor people to eat three times a day all the poor, and we will assist with the activities that will take place in our area to also help stop poverty in the Philippines.
 
 
-      • Future Researchers - this paper will review a wide range of this research and discuss the underlying perspectives that 
-      characterize entrepreneurship and poverty alleviation. We will, in turn, use these perspectives to lay out an agenda for 
-      future research.
-
+      • Future Researchers - this paper will review a wide range of this research and discuss the underlying perspectives that characterize entrepreneurship and poverty alleviation. We'll then use these viewpoints to develop a research agenda for the future.
+      
 **Methods:**
 
       	  The analysis uses a comprehensive framework for assessing poverty in the Region IV-A in Municipality of Batangas. It examines the key areas that are relevant 
