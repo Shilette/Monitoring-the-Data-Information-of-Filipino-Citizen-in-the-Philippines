@@ -23,7 +23,7 @@
 
       • Future Researchers - this paper will review a wide range of this research and discuss the underlying perspectives that characterize entrepreneurship and poverty alleviation. We'll then use these viewpoints to develop a research agenda for the future.
       
-**Methods:**
+**Methodology:**
 
       	  The analysis uses a comprehensive framework for assessing poverty in the Region IV-A in Municipality of Batangas. It examines the key areas that are relevant 
       to poverty reduction: increasing incomes, human capital, and capacity; risk protection; and voice and empowerment in governance 
