@@ -44,3 +44,6 @@
           These SDGs are further described as follows;
 
       Goal 1: No Poverty - This goal strives to end poverty in all area of Batangas. These SDG will create sound policy frameworks at the Municipality of Batangas, 	based on estimating poor by year of 20006, 2009, 2012.
+
+Live Presentation
+https://youtu.be/fSpD9tZp34k
