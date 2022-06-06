@@ -49,5 +49,7 @@ Live Presentation:
 
 https://youtu.be/nyL_VzUMm5E
 
+Recorded Presentation:
 
+https://youtu.be/fSpD9tZp34k
 
